@@ -35,6 +35,4 @@ I'm always open to discussing new projects, collaborations, or opportunities. Fe
 
 •Email: gagansbaghel@gmail.com
 
-•LinkedIn: www.linkedin.com/in/gagan-singh-baghel/
-
 •Thank you for visiting my profile!
